@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+Favorite games to play:
+  1. Apex Legends
