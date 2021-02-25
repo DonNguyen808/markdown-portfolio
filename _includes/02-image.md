@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://st.depositphotos.com/1100827/1353/i/950/depositphotos_13536875-stock-photo-pirate-swords.jpg
